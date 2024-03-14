@@ -1,0 +1,5 @@
+![image](https://github.com/rolando1803/bigdata/assets/55965131/36b46137-5a9e-4d53-8ea0-b344646da90d)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/884e1e62-3bcc-48c8-8de1-c83453bcd622)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/a18f90ea-6813-4b26-846b-fa6e0b75de6f)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/b92fd5e8-2df5-4f15-9fca-04951ce8f103)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/cc69ce00-15f9-4c32-8549-c0275f279b66)
