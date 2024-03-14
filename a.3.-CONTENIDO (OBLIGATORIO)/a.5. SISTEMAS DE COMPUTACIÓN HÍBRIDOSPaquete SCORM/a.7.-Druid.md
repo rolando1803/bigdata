@@ -1,0 +1,8 @@
+![image](https://github.com/rolando1803/bigdata/assets/55965131/e2ae2e74-7221-4c94-8577-f358634f119a)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/fe4567a4-74dc-457d-8d9c-67a24c25dc69)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/ae1e42ad-f3c2-47c5-8cf0-5b3b730d4dfd)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/6edc3837-72ce-498c-a24c-97e05ba8f085)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/d7b4cbb8-95cf-4ef5-8246-87f57b325a30)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/79728122-a2de-4a76-9a59-806982f9c966)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/248eba80-a72d-458f-ab88-319a1405034f)
+![image](https://github.com/rolando1803/bigdata/assets/55965131/51892bb5-8c52-48de-8cce-1c7f6299fc52)
